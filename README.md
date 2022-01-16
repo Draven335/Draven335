@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @Draven335 im learning how to make nft and hoping for a lttle insite looking to create a community of like minded individuals that have the samegoals and outloos on things in life sowe can make this a better place.
